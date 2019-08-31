@@ -5,4 +5,4 @@
 
 # Links
 ## Ссылка на дизайнерские макеты 
-https://drive.google.com/drive/folders/1f0fZwD8YPt5mq1m61dtTxJNtwmdFqaTn?usp=sharing
+https://drive.google.com/drive/folders/1ZxSq_ym789xoYzRv7NKc3R5MIRHH5Fkx?usp=sharing
